@@ -1,1 +1,0 @@
-# sodiqovchat.github.io
